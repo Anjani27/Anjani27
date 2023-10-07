@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **anjkus27@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1iRBOytNjv6M9RrVCI8AVqWWCPmxFJKP4/view?usp=share_link](https://drive.google.com/file/d/1iRBOytNjv6M9RrVCI8AVqWWCPmxFJKP4/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1AV9nmaKIqlYJfbMOzUr38wkWu6VI-5fA/view?usp=sharing](https://drive.google.com/file/d/1AV9nmaKIqlYJfbMOzUr38wkWu6VI-5fA/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
